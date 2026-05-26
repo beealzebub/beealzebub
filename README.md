@@ -18,10 +18,11 @@
 
 [pony town bounderies ˙𐃷˙](https://github.com/b3alz3bub/ponytown-bounderies) &nbsp; [favorite characters ꒰ঌ ໒꒱](https://github.com/b3alz3bub/favorite-characters) &nbsp; [kin list („• ֊ •„)](https://github.com/b3alz3bub/kin-list)
 
+**GUYS PLEASE LOOK AT MY FRIENDS REALLY COOL README OK GOOD BYE >>> [deidoesart](https://github.com/DeiDoesArt)**
+
 <div align="middle">  
 <img width="300" alt="Image" src="https://github.com/user-attachments/assets/80b10217-b392-4fa1-88ed-39db1ddeffef" /> <img width="300" alt="Image" src="https://github.com/user-attachments/assets/80b10217-b392-4fa1-88ed-39db1ddeffef" />
 
-**GUYS PLEASE LOOK AT MY FRIENDS REALLY COOL README OK GOOD BYE >>> [deidoesart](https://github.com/DeiDoesArt)**
 
 <div align="center">
 <img width="5493" alt="Image" src="https://github.com/user-attachments/assets/f443ae3d-d18f-428d-8fc5-0f8bb48b84fb" />
