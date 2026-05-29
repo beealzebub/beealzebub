@@ -18,7 +18,7 @@
 
 [pony town bounderies ˙𐃷˙](https://github.com/b3alz3bub/ponytown-bounderies) &nbsp; &nbsp; [favorite characters ꒰ঌ ໒꒱](https://github.com/b3alz3bub/favorite-characters) &nbsp; &nbsp; &nbsp; [kin list („• ֊ •„)](https://github.com/b3alz3bub/kin-list)
 
-**GUYS PLEASE LOOK AT MY FRIENDS REALLY COOL README OK GOOD BYE >>> [deidoesart](https://github.com/DeiDoesArt)**
+**If you've been seeing me often with my tadc oc (Dusty) i REALLY want to make an entire seperate github just for her! so you can read her lore, her relationships/Dynamics and many more! i'll be working on it soon, and i'd like to take writing tips (｡•̀ᴗ-)✧**
 
 <div align="middle">  
 <img width="300" alt="Image" src="https://github.com/user-attachments/assets/80b10217-b392-4fa1-88ed-39db1ddeffef" /> <img width="300" alt="Image" src="https://github.com/user-attachments/assets/80b10217-b392-4fa1-88ed-39db1ddeffef" />
