@@ -16,7 +16,7 @@
 <img width="67" alt="Image" src="https://github.com/user-attachments/assets/065350d8-0f8a-4c54-9357-c08d60ef0489" />
 
 
-[read plz b4 int ˙𐃷˙]([https://github.com/b3alz3bub/ponytown-bounderies](https://beasbounderies.straw.page/)) &nbsp; : &nbsp; [fav characters ꒰ঌ ໒꒱](https://github.com/b3alz3bub/favorite-characters) &nbsp; : &nbsp; &nbsp; [kin list („• ֊ •„)](https://github.com/b3alz3bub/kin-list)
+[read plz b4 int ˙𐃷˙]((https://beasbounderies.straw.page/) &nbsp; : &nbsp; [fav characters ꒰ঌ ໒꒱](https://github.com/b3alz3bub/favorite-characters) &nbsp; : &nbsp; &nbsp; [kin list („• ֊ •„)](https://github.com/b3alz3bub/kin-list)
 
 
 <div align="middle">  
