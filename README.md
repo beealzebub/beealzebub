@@ -1,9 +1,7 @@
 <div align="center">
-
-<img width="555" alt="Image" src="https://github.com/user-attachments/assets/fc908ffa-dccc-4b5b-91cc-7baf6f119cd1" />
-
-(&nbsp; gif by butchgangle on tumblr &nbsp;!&nbsp;)
  
+<img width="1080" height="1080" alt="Post from KKOMDA" src="https://github.com/user-attachments/assets/f5d29619-2307-4422-9d87-fb072a7e6b1b" />
+
 [fandoms ݁ ˖Ი𐑼⋆](https://beasfandoms.straw.page) &nbsp; : &nbsp; &nbsp; [ata (˶˃𐃷˂˶)](https://b3alz3bub.atabook.org) &nbsp; : &nbsp; &nbsp; [Guns 𐔌՞. .՞𐦯](https://guns.lol/bealzebub)
 
 [read plz b4 int ˙𐃷˙](https://github.com/beealzebub/ponytown-bounderies) &nbsp; : &nbsp; [fav characters ꒰ঌ ໒꒱](https://github.com/b3alz3bub/favorite-characters) &nbsp; : &nbsp; &nbsp; [kin list („• ֊ •„)](https://github.com/b3alz3bub/kin-list)
