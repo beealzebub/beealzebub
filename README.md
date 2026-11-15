@@ -1,6 +1,8 @@
 <div align="center">
  
-<img width="1080" height="1080" alt="Post from KKOMDA" src="https://github.com/user-attachments/assets/f5d29619-2307-4422-9d87-fb072a7e6b1b" />
+<img width="400" src="https://github.com/user-attachments/assets/f5d29619-2307-4422-9d87-fb072a7e6b1b" />
+
+(githup rework wip)
 
 [fandoms ݁ ˖Ი𐑼⋆](https://beasfandoms.straw.page) &nbsp; : &nbsp; &nbsp; [ata (˶˃𐃷˂˶)](https://b3alz3bub.atabook.org) &nbsp; : &nbsp; &nbsp; [Guns 𐔌՞. .՞𐦯](https://guns.lol/bealzebub)
 
