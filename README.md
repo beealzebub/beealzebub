@@ -1,9 +1,7 @@
 <div align="center">
 <img width="500" alt="Alli icon-Photoroom" src="https://github.com/user-attachments/assets/11ad71a8-d36a-4d86-9924-f9331db2cd7a" />
   
-guys im still working ok please dont harass me
-<details> <summary> 𝙛𝙖𝙫 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 </summary>
+guys im still trying to figure out how to decorate my github plz dont harass me... <img width="38" alt="awww who dis" src="https://github.com/user-attachments/assets/c3c68927-0622-491f-8e14-63f968492fbd" />
+
+<details> <summary> 𝙛𝙖𝙫 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨 ' </summary>
 franky frankly (welcome home), Eddie dear (welcome home), Franny joyful (welcome home), Mackenzie (bluey), Ragatha (TADC), Gangle (TADC), Loolilalu (TADC), Ribbit (TADC), Daisuke (mouthwashing), Benny (LEGO/LEGO Movie), Veneer (Trolls Band together), King trollex (Trolls world tour), Margaretha Zelle (Identity V), Naiad/grace (identity v), opera singer/sangria (identity v), geisha/michiko (identity v), luka (alien stage), eugene (hilda), migrating jelly whisperer (sky cotl), shrimpo (dandys world), goob (dandys world), finn (dandys world), glisten (dandys world), sprout (dandys world), flyte (dandys world), looey (dandys world), blot (dandys world), brusha (dandys world), donald duck (disney), harley sawyer (poppy playtime), pulchra (ZenlessZZ), sunna (ZenlessZZ), nangong yu (ZenlessZZ), aria (ZenlessZZ), pawbert (Zootopia/tropolis 2), flick (animal crossing: NH), stocky (meleeniacs), meeple (brawl stars), gigi (brawl stars), bea (brawl stars), alli (brawl stars), star nova/stella (brawl stars), finx (brawl stars), ruby (brawl stars), maddie nolan (arcane), bo peep (toy story), smarty pants (toy story 5), Vesna (genshin impact), Odette (genshin impact), kokomi (genshin impact), yaoyao (genshin impact), mizuki (genshin impact), sandrone (genshin impact), sigewinne (genshin impact), faruzan (genshin impact), nilou (genshin impact)
-  
-<details> <summary> 𝙠𝙞𝙣 𝙡𝙞𝙨𝙩 </summary>
-frank frankly (welcome home), eddie dear (welcome home), ragatha (tadc), gangle (tadc), pomni (tadc), mackenzie (bluey), minako (pink bxxch club), ENA (ENA series & DBBQ), luka (alien stage), darwin (tawog/twwwog), sprout (dandys world), brusha (dandys world), shelly (dandys world), sayori (ddlc), monika (ddlc), bassie (dandys world), dioda (dandys world), spinel (steven universe), ribbit (tadc), woody (toy story), alli (brawl stars)
