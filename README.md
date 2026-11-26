@@ -9,4 +9,3 @@ $\color{#de52e3}{\text{guys im still trying to figure out how to decorate my git
 [sign ata '](https://b3alz3bub.atabook.org)
 
 <img width="3129" alt="allidd" src="https://github.com/user-attachments/assets/0c63179c-ba83-40cc-9971-481a72327e7a" />
-<details> <summary> about my sister </summary>
