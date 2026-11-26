@@ -4,7 +4,7 @@
 
 <img width="500" alt="Alli icon-Photoroom" src="https://github.com/user-attachments/assets/11ad71a8-d36a-4d86-9924-f9331db2cd7a" />
   
-$\color{#de52e3}{\text{guys im still trying to figure out how to decorate my github plz dont harass me...}}$ <img width="28" alt="awww who dis" src="https://github.com/user-attachments/assets/c3c68927-0622-491f-8e14-63f968492fbd" />
+$\color{#C25BE3}{\text{guys im still trying to figure out how to decorate my github plz dont harass me...}}$ <img width="28" alt="awww who dis" src="https://github.com/user-attachments/assets/c3c68927-0622-491f-8e14-63f968492fbd" />
 
 [sign ata '](https://b3alz3bub.atabook.org)
 
