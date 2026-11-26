@@ -5,6 +5,7 @@
 <img width="500" alt="Alli icon-Photoroom" src="https://github.com/user-attachments/assets/11ad71a8-d36a-4d86-9924-f9331db2cd7a" />
   
 $\color{#C25BE3}{\text{guys im still trying to figure out how to decorate my github plz dont harass me...}}$ <img width="28" alt="awww who dis" src="https://github.com/user-attachments/assets/c3c68927-0622-491f-8e14-63f968492fbd" />
+$\color{#C25BE3}{\text{side note: im not a yumeshipper, i just find alli reallyreally really hot ok goodbye}}$
 
 [<img width="230" alt="gun" src="https://github.com/user-attachments/assets/bf3c2c38-d7c7-4a8a-932f-c232aec9fb52" />](https://guns.lol/bealzebub) &nbsp; [<img width="230" alt="ata" src="https://github.com/user-attachments/assets/8c7071c9-e272-43ec-826e-5f38e7b2a372" />](https://b3alz3bub.atabook.org)
 
