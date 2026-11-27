@@ -15,7 +15,7 @@
 
  I dont add back that many people, mostly because i only add back my irl friends and i just like being by myself, and im pretty used to it. Personally i only add people back if i feel a strong connection towards them or if they're just funny in general, but at the same time i just dislike starting up conversations because its too awkward for me... T-T but no harsh feeling, but i encourage people to int to me first (unless im w/ friends) if we have the same interest!
  
-Guys i only show my pt tags on my skins, so you can c*h, int freely okay! i dont bite
+Guys i only show my pt tags on my skins, so you can also c*h freely okay! i dont bite
  </details>
 
 <img width="570"  alt="8499bccd53cc708e1cba8482784b84d8" src="https://github.com/user-attachments/assets/88d2b9f3-9e53-488f-8d89-c9db9a17f15d" />
