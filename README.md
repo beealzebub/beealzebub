@@ -9,4 +9,8 @@ $\color{#C25BE3}{\text{𝙨𝙞𝙙𝙚 𝙣𝙤𝙩𝙚: 𝙞𝙢 𝙣𝙤𝙩 
 
 [<img width="230" alt="gun" src="https://github.com/user-attachments/assets/bf3c2c38-d7c7-4a8a-932f-c232aec9fb52" />](https://guns.lol/bealzebub) &nbsp; [<img width="230" alt="ata" src="https://github.com/user-attachments/assets/8c7071c9-e272-43ec-826e-5f38e7b2a372" />](https://b3alz3bub.atabook.org)
 
+<details> <summary> $\color{#C25BE3}{\text{𝙛𝙖𝙣𝙙𝙤𝙢𝙨 𝙞𝙢 𝙞𝙣!}}$ $\color{#cc45cc}{\text{(≧◡≦)}}$] </summary>
+$\color{#b33493}{\text{little goody two shoes, welcome home, reverse: 1999, empires smp, avatar (jc), ever after high, pink bxxch club, shadows house, little witch academia, precure, tadc, little nightmares, poppy playtime, bendy and the ink machine, violet evergarden, cardcaptor sakura, dhmis, sesame street, the muppet show, harry potter, honkai star rail, zenlesszz, genshin impact, trolls, animal crossing, my friendly neighborhood, bluey, hello puppets, whitepines, idv, hilda, avenue Q, mouthwashing, threadville, ananta, ENA, silver palace, sea of remnants, popee the performer, date everything, marionetta, clinic of horrors, tawog, sweet tooth, bee and puppycat, aqua teen hunger force, the dark crystal, lalaloopsy, KoG, sailor moon, sky cotl, meleeniacs, dandys world, brawl stars, habromania}}$
+
+
 <img width="3129" alt="allidd" src="https://github.com/user-attachments/assets/0c63179c-ba83-40cc-9971-481a72327e7a" />
