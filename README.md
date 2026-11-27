@@ -48,7 +48,7 @@ brawl stars, welcome home, the beatles, ABBA, mommy longlegs, Aurora Ave., be yo
 <img width="570"  alt="8499bccd53cc708e1cba8482784b84d8" src="https://github.com/user-attachments/assets/88d2b9f3-9e53-488f-8d89-c9db9a17f15d" />
 
 [<img width="230" alt="gun" src="https://github.com/user-attachments/assets/bf3c2c38-d7c7-4a8a-932f-c232aec9fb52" />](https://guns.lol/bealzebub) &nbsp; [<img width="230" alt="ata" src="https://github.com/user-attachments/assets/8c7071c9-e272-43ec-826e-5f38e7b2a372" />](https://b3alz3bub.atabook.org)
-[<img width="230" alt="staw" src="https://github.com/user-attachments/assets/6fbd1da7-a8c0-47b1-b481-9b8d05d6d35b" />](beealzebub.straw.page)
+[<img width="230" alt="staw" src="https://github.com/user-attachments/assets/6fbd1da7-a8c0-47b1-b481-9b8d05d6d35b" />](https://beealzebub.straw.page/)
 
 <details>
 <summary> $\color{#CB25BE3}{\text{𝙛𝙖𝙣𝙙𝙤𝙢𝙨 𝙞𝙢 𝙞𝙣 (˶ˆᗜˆ˵)}}$
