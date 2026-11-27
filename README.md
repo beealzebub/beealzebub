@@ -14,7 +14,8 @@ $\color{#C25BE3}{\text{𝙨𝙞𝙙𝙚 𝙣𝙤𝙩𝙚: 𝙞𝙢 𝙣𝙤𝙩 
  <br>
 
 </summary>
-$\color{#CB25BE3}{\text{little goody two shoes, welcome home, reverse: 1999, empires smp, avatar (jc), ever after high, pink bxxch club, shadows house, little witch academia, craig of the creek, precure, tadc, litte nightmares, poppy playtime, bendy and the ink machine, violet ever garden, cardcaptor sakura, dhmis, sesame street, the muppet show, harry potter, spider-verse, honkai star rail, zenlesszz, genshin impact, trolls, animal crossing, my friendly neighborhood, bluey, hello puppets, whitepines, idv, hilda, avenue Q, mouthwashing, threadville, ananta, ENA, sea of remnants, popee the performer, date everything, marionetta, clinic of horrors, tawog, sweet tooth, bridgerton, bee and puppycat, aqua teen hunger force, the dark crystal, lalaloopsy, silver palace, KoG, sky cotl, meleeniacs, dandys world, brawl stars, habromania}}$ </details>
+$\color{#CB25BE3}{\text{little goody two shoes, welcome home, reverse: 1999, empires smp, avatar (jc), ever after high, pink bxxch club, shadows house, little witch academia, craig of the creek, precure, tadc, litte nightmares, poppy playtime, bendy and the ink machine, violet ever garden, cardcaptor sakura, dhmis, sesame street, the muppet show, harry potter, spider-verse, honkai star rail, zenlesszz, genshin impact, trolls, animal crossing, my friendly neighborhood, bluey, hello puppets, whitepines, idv, hilda, avenue Q, mouthwashing, threadville, ananta, ENA, sea of remnants, popee the performer, date everything, marionetta, clinic of horrors, tawog, sweet tooth, bridgerton, bee and puppycat, aqua teen hunger force, the dark crystal, lalaloopsy, silver palace, KoG, sky cotl, meleeniacs, dandys world, brawl stars, habromania}}$ 
+</details>
 
 
 <img width="3129" alt="allidd" src="https://github.com/user-attachments/assets/0c63179c-ba83-40cc-9971-481a72327e7a" />
