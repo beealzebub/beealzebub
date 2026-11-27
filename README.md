@@ -14,6 +14,7 @@
  I am a minor which is obvious so please keep that in mind, anyone above 18+ can intwcaution but please dont make the conversation uncomfortable. Anyone above 25-30+ respectfully dni.
 
  I dont add back that many people, mostly because i only add back my irl friends and i just like being by myself, and im pretty used to it. Personally i only add people back if i feel a strong connection towards them or if they're just funny in general, but at the same time i just dislike starting up conversations because its too awkward for me... T-T but no harsh feeling, but i encourage people to int to me first (unless im w/ friends) if we have the same interest!
+ 
 Guys i only show my pt tags on my skins, so you can c*h, int freely okay! i dont bite
  </details>
 
