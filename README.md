@@ -2,7 +2,11 @@
 
 <img width="3128" alt="ayli" src="https://github.com/user-attachments/assets/140e810c-a7a9-463c-a300-ca7785ff34ac" />
 
-<img width="500" alt="Alli icon-Photoroom" src="https://github.com/user-attachments/assets/11ad71a8-d36a-4d86-9924-f9331db2cd7a" />
+<img width="750" alt="intro 1" src="https://github.com/user-attachments/assets/18f57f48-5cbc-45ed-869e-8fbb74003e25" />
+
+<img width="570"  alt="8499bccd53cc708e1cba8482784b84d8" src="https://github.com/user-attachments/assets/88d2b9f3-9e53-488f-8d89-c9db9a17f15d" />
+
+<img width="754"  alt="intro 2" src="https://github.com/user-attachments/assets/fb1a19b4-8f25-40ae-8302-729d8b17100a" />
 
 [<img width="230" alt="gun" src="https://github.com/user-attachments/assets/bf3c2c38-d7c7-4a8a-932f-c232aec9fb52" />](https://guns.lol/bealzebub) &nbsp; [<img width="230" alt="ata" src="https://github.com/user-attachments/assets/8c7071c9-e272-43ec-826e-5f38e7b2a372" />](https://b3alz3bub.atabook.org)
 
